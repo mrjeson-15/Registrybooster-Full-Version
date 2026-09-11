@@ -1,0 +1,1 @@
+# Registrybooster-Full-Version
